@@ -1,1 +1,0 @@
-# Smart-Concept-Explainer-
